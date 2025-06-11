@@ -21,3 +21,5 @@ The Flugsvamp 4.0 shop presents a vast array of illegal products, with a particu
 However, it's crucial to understand the risks involved in participating in such markets, encompassing legal and security implications. Always prioritize personal safety and safeguard your data while exploring these platforms, particularly in the context of "Luffarn".
 
 <a href="http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion"><img src="/image/margin.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion"><img src="/image/web.webp" alt="image" style="max-width: 100%;"><a>
+
+Update:  11 June 2025
