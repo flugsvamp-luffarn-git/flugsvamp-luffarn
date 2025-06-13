@@ -22,4 +22,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 <a href="http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion"><img src="/image/margin.webp" alt="image" style="max-width: 100%;"><a>  <a href="http://ikhpggtz3iv6gfebiqagmb4zto2e6xepocqjii3yvkrp27jwzlds2lqd.onion"><img src="/image/web.webp" alt="image" style="max-width: 100%;"><a>
 
-Update:  11 June 2025
+
+
+Update: link is functioning
