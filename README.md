@@ -24,4 +24,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update: link is functioning
+
+
+Update: Fixed broken external url
