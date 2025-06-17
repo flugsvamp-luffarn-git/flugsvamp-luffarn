@@ -26,4 +26,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update: Fixed broken external url
+
+
+Update:  Tuesday 17 June 2025 Fixed broken link
