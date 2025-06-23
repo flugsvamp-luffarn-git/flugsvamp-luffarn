@@ -30,4 +30,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  06/21/2025 08-49-31 url is now responsive and live
+
+
+Update:  23 June 2025
