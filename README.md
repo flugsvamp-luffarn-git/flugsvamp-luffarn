@@ -34,4 +34,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  24 June 2025
+
+
+Update:  06/26/2025 06-33 Fixed dead external links in changelog
