@@ -38,4 +38,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  04.07.2025 04:30:01
+
+
+Update:  Monday 07 July 2025 Link is now active and responsive
