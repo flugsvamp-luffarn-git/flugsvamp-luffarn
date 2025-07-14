@@ -40,4 +40,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  Monday 07 July 2025 Link is now active and responsive
+
+
+Update:  14.07.2025 url is now live and reachable
