@@ -42,4 +42,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  14.07.2025 url is now live and reachable
+
+
+Update:  07/18/2025 14-54-05 Link is now responsive and active
