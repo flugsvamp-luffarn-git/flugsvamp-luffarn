@@ -44,4 +44,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  07/18/2025 14-54-05 Link is now responsive and active
+
+
+Update:  21.07.2025 21:53 Corrected broken authentication guide links
