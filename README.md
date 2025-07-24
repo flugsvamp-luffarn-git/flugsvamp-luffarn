@@ -46,4 +46,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  21.07.2025 21:53 Corrected broken authentication guide links
+
+
+Update: url is functioning
