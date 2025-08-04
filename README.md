@@ -48,4 +48,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update: url is functioning
+
+
+Update:  08/04/2025 url is responsive
