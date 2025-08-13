@@ -50,4 +50,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  08/04/2025 url is responsive
+
+
+Update:  13 August Link is now responsive and functioning
