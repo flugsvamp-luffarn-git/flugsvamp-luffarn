@@ -52,4 +52,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  13 August Link is now responsive and functioning
+
+
+Update:  19 August
