@@ -54,4 +54,6 @@ However, it's crucial to understand the risks involved in participating in such 
 
 
 
-Update:  19 August
+
+
+Update:  23 August 2025 Great job team, the link is functioning properly now.
